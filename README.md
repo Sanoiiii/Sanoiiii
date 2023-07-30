@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sanoiiii
 - 
-- 👀 I’m interested in BSD, Demon Slayer, Art, Ponytown, Dangaronpa, Etc<3
+- 👀 I’m interested in BSD, Demon Slayer, Art, Ponytown, Dangaronpa, Creepypasta, TBHK, Undertale, Southpark, Sanrio, Welcome Home, Deathnote, Steven Universe, OMORI, Helluva Boss, Hazbin Hotel, Etc<3
 - 
 - 🌱 I’m not very social :')
 - 
