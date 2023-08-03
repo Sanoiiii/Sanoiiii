@@ -16,7 +16,7 @@
 -
 -🌈 I am Pansexual and Aroace.
 -
--🪶 I kin Dazai and Ranpo.
+-🪶 I am feeling silly sometimes-
 -
 PONY TOWN: Icon Meanings!
 🟢: Wandering around usually I dont mind if you Int!
